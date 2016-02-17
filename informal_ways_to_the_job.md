@@ -48,12 +48,15 @@ Here are some sites where you can find small assignments or jobs that are remote
 
 Volunteering is a great way to meet new people and for doing something meaningful while hunting for jobs. Here you can find volunteering opportunities:
 
-*[Volontärbyrån](https://www.volontarbyran.org/)
+* [Volontärbyrån](https://www.volontarbyran.org/)
 
 Or why not start your own nonprofit about a cause you care about?
 
-###Invitationsdepartementet
+###Öppna Dörren
+Is a group of initiatives by Axfoundations. Here are some may use:
 
-###Yrkesdörren
+* Invitationsdepartementet's idea is simple. As a newcomer you will be matched with a local person that you will have dinner with. [See more at their webpage.](http://invitationsdepartementet.eu/)
 
-###Kompis Sverige
+* Yrkesdörren helps people meet by common professional interests. [Register at their webpage](http://www.yrkesdorren.se).
+* Kompis Sverige is a way to meet Swedes. Basically, you will go to an interview with the organization and then be matched with a Swede that has the same interests as you. See more at [Kompis Sverige](http://www.kompissverige.se/).
+
