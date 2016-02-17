@@ -1,4 +1,4 @@
-# Informal ways to the job
+# Where to Meet People
 
 A clear majority of all jobs in [Sweden are never announced formally at job boards and similarly](https://www.gp.se/nyheter/sverige/1.2836239-nyanlanda-star-utan-jobbnatverk?m=print). Instead the jobs are given to employees that have informal relationships with the employer. This is of course a problem for people that do not have the important network that is needed to find a job. So, by all means continue to look for jobs in job boards like [Platsbanken](http://www.ams.se), [Monster](http://www.monster.com), and similar sites. But make sure you also build informal relationships with people in the industry. Here are some ways you can do that:
 
