@@ -3,7 +3,7 @@
 
 400contacts is a mentoring program with one goal in mind. To help refugees with a background in engineering get their first skilled job in Sweden. 
 
-The purpose with this book is to give an introduction to mentorships and also provide useful information for newcomers in Sweden in general.
+The purpose with this book is to give an introduction to the mentorship program and also share knowledge that we experience along the way about how to find the job in Sweden.
 
 This book is under development. Contributions are very much appreciated! Either as Pull Requests or by sending an email to 400contacts@gmail.com.
 
