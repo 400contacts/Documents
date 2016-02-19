@@ -7,12 +7,20 @@ So, you have been matched with a potential mentee. What now?
 
 Many mentors schedule a call or add the mentee on an IM service like Messenger, Whatsapp, or Slack. When you first reach out, introduce yourself and ask whether the person could get on a call sometime this week and ask for the person's phone number.
 
-In that call, try to answer the question:
+In that call, try to answer these questions:
 
 * What are your biggest challenges right now?
 * How can I help with this?
 
-In some cases, you might not be able to help the person. If so, then perhaps you have some other person in your network that could help the person? 
+The best way forward here is to focus on one specific task to help the mentee with. Here are a list of options (chose one):
+
+* Help mentee make a Swedish CV.
+* Help mentee find five employers in his/her industry.
+* Help mentee connect to one person in his/her industry.
+* Invite mentee to one industry event.
+* Invite mentee to lunch or fika.
+
+It is better to do something small than doing nothing at all. 
 
 ###Some things to take into consideration
 

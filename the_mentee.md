@@ -2,15 +2,24 @@
 
 ### What to expect  
 
-It is important to mention that the expectation on the mentor should not be to find you a job. The role of the mentor is to help you with things related to finding a job in Sweden.
+It is important to mention that the expectation on the mentor should not give you a job but to help you find one. Your mentor is supposed to help you with things that increases your chances of a job.
 
-So that could be: 
+In order to do so, it is important that you are clear about your challenges at the moment and also specify a single thing that you need help with.
 
-* Helping you with your CV
-* Give recommendations where to look for jobs
-* Introduce you to the Swedish job market
+Oftentimes, the first contact with the mentor will be either a phone call or an email. In that conversation, try to answer following question:
+
+* What are your biggest challenges right now?
+
+Based on that question, the mentor and you can have a discussion about what the mentor can do. It is great to have a specified first task that the mentor can help you with. That could be: 
+
+* Help you make a Swedish CV.
+* Help you find five employers in your industry.
+* Help you connect to one person in your industry.
+* Give a recommendation on networking events.
 
 Make sure that you are clear with your intentions with what you need help with as a mentee and how your mentor can help you.
+
+It is best to cooperate on something small and definable in the beginning and then continue of it works for both.
 
 ### While Waiting
 
