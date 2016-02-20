@@ -2,14 +2,13 @@
 
 ### What to expect  
 
-It is important to mention that the expectation on the mentor should not give you a job but to help you find one. Your mentor is supposed to help you with things that increases your chances of a job.
+You will be contacted by your mentor on email. Make sure you check your inbox and also your spam folder. It is usually easiest if you make a phone call or send messages through IM in the beginning. Like, Whatsapp, Messenger or SMS.
 
-In order to do so, it is important that you are clear about your challenges at the moment and also specify a single thing that you need help with.
-
-Oftentimes, the first contact with the mentor will be either a phone call or an email. In that conversation, try to answer following question:
+In the beginning discuss the following question with your mentor?
 
 * What are your biggest challenges right now?
 
+### What your mentor can help with
 Based on that question, the mentor and you can have a discussion about what the mentor can do. It is great to have a specified first task that the mentor can help you with. That could be: 
 
 * Help you make a Swedish CV.
