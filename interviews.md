@@ -1,6 +1,6 @@
-##Never lose hope on what you want - Interview with Bukenya Moshen (mentee)
+##Never lose hope on what you want - Blab with Bukenya Moshen (mentee)
 
-* What did you do when arriving in the camp?
+* What did you do when arriving in the asylum camp?
 
 Arriving in a new environment, I started by teaming up. I met Tarek Alhamad and we started talking about how we could leverage our skills in this new environment. We couldn’t just forgo our skills that we have spent years to build up.
 
