@@ -50,4 +50,4 @@ I had 700 sek a month. I walked for hours a day just to go back and forth to the
 
 You can say: “transfer me to another camp”. The authorities will say: "there is no problem here". But, when they see that you are fighting for something and are being determined, then they will change their mind. 
 
-So when being determined, positive and enthusiastic anything happen. Never lose hope on what you want.
+So when being determined, positive and enthusiastic anything can happen. Never lose hope on what you want.
