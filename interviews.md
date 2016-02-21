@@ -6,7 +6,7 @@ Arriving in a new environment, I started by teaming up. I met Tarek Alhamad and 
 
 I started joining groups on Facebook with Tarek and dowloading some apps for learning Swedish. 
 
-“I wanted to use the time in the asylum camp to learn something new”
+> I wanted to use the time in the asylum camp to learn something new
 
 Then, when having found some resources to learn Swedish I started also learning how to code. Because, I wanted to use the time in the asylum camp to learn something new.
 
@@ -44,7 +44,7 @@ It is important to take care of the time here. You can either be at the camp or 
 
 You will never have enough resources and people will never come to you to ask what you want. You have to reach out to your mentor or other people and tell them who you want to be and where you want to be.
 
-“Being determined, positive and enthusiastic can make anything happen. Never lose hope on what you want.”
+> Being determined, positive and enthusiastic can make anything happen. Never lose hope on what you want.
 
 * If you would close this off with some recommendations for people just arriving in Sweden, what would you tell people?
 
